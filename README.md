@@ -1,2 +1,2 @@
 # pnevskih
-Таблицы
+https://gttghgggfgttg.github.io/pnevskih/
